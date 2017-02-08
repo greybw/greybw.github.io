@@ -1,5 +1,11 @@
 # greybw.github.io
 
+# PLEASE NOTE: Requests are currently closed.
+
+Homebrew needs to be updates by it's developers before I can continue to gen for you. This wont take long. Check back in a couple of days.
+
+
+
 If you're here from @greybw on Instagram and you are here because you want me to create legit-hacked Pokemon for your Sun/Moon game, you're in the right place!
 
 
