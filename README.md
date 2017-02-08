@@ -2,7 +2,7 @@
 
 # PLEASE NOTE: Requests are currently closed.
 
-Homebrew needs to be updates by it's developers before I can continue to gen for you. This wont take long. Check back in a couple of days.
+Homebrew needs to be updated by it's developers before I can continue to gen for you. This wont take long. Check back in a couple of days.
 
 
 
